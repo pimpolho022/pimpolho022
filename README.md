@@ -5,4 +5,4 @@
 quem veio primeiro o ovo ou a galinha???
 
 estudo na escola [nicota](instagram/escola.donanicota)
-  ![](https://media1.tenor.com/m/COcSmM3DDf0AAAAC/he-hehe.gif)
+  ![](https://media1.tenor.com/m/FgaSQljaZVwAAAAd/dance-dog.gif)
